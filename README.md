@@ -4,4 +4,3 @@
 <br>
 <br>
 <br>
-#### Sword to offer part
